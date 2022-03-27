@@ -1,0 +1,1 @@
+# StokTakipOtomasyonuFaz1-MuhammedBerkayTokdam-EmirhanSoylu
